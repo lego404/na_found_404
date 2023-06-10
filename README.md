@@ -1,5 +1,3 @@
 # na_found_404 
 
-이미지 오류 미친넘ㅎㅎㅎㅎㅎㅎ
-<hr>
-ps: 4월 4일에 태어나서 써먹을게 많다
+<b> https://lego404.github.io/na_found_404/ <b>
